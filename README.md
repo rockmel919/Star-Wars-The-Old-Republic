@@ -219,4 +219,4 @@ Star Wars: The Old Republic is offered as a complete free version, with all feat
 Download Star Wars: The Old Republic now and join the battle for the galaxy! May the Force be with you!
 
 ---
-**Last updated:** 2026-11-05 00:38:10 UTC
+**Last updated:** 2026-11-05 07:32:42 UTC
